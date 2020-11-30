@@ -1,1 +1,1 @@
-【u】1【u】 【p】123【p】 【e】18 October 2020【e】 【link】https://semawur.com/2ETlMJr【link】
+【u】Dastan【u】 【p】14DaysHHHGKPNHJ【p】 【e】کۆدی ١٤ ڕۆژی 【e】 【link】https://www.youtube.com/channel/UC8RFROdlIkuBDMQZXDSpEwA【link】
